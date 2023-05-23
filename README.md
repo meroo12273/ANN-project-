@@ -1,3 +1,3 @@
-# ANN-project-Deepfakes are modified media products created to 
+# ANN-project-Deepfakes image detection
 every thing you need in the PDF file 
 
